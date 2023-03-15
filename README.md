@@ -6,8 +6,7 @@
 - 🤔 I’m looking to collaborate on many projects to see all the methodoly development in the world, good luck for me!
  💬 
 - 📫 How to reach me: preciousgracelove@gmail.com
- 😄 
+  <br><br>
 -More about SAYNA: https://sayna.io
-<br><br>
-- More about me: .......
+- 😄More about me: .......
 --> To the pleasure of exchanging and/or collaborating together <--
