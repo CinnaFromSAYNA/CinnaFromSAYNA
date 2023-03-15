@@ -8,4 +8,5 @@
 - 📫 How to reach me: preciousgracelove@gmail.com
  😄 
 -More about SAYNA: https://sayna.io
+- More about me: .......
 --> To the pleasure of exchanging and/or collaborating together <--
